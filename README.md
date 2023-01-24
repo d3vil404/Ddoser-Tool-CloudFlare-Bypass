@@ -1,4 +1,4 @@
-# Ddoser-Tool-CloudFlare-Bypass
+# Ddoser-Tool-CloudFlare-Bypass  D3VIL_404 WAS HERE CHANGE YOU SECURITY SETTING.
 The Best DDoS Attack Tool + Bypass Cloud Flare and other CDN's For Priv8
 
 You can have any power plan of Ddoser tool you want, Just see Youtube video and contact with me :)
@@ -12,7 +12,7 @@ Contact with me to get the Password of Zip file on :
  Email : erfan4lx@gmail.com
  
  
-  ## Show on Youtube : Video was deleted by YouTube, I'll upload it again but for now you can get it from me on Telegram or Email
+  ## Show on Youtube  Video was deleted by YouTube, I'll upload it again but for now you can get it from me on Telegram or Email
  
  
 ## • Our Channels : 
